@@ -13,3 +13,4 @@ blood grp: b+
 email id: marifsk95@gmail.com
 
 [arishaikh@localhost Desktop]$
+![IMG20201210170849](https://user-images.githubusercontent.com/74093519/101899740-53cd4880-3bd4-11eb-93fd-c741550d3b18.jpg)
